@@ -3,7 +3,7 @@ About Me
 Hello, world! :vulcan_salute:
 
 
-I'm a technology enthusiast in heart and astronomer at heart :telescope:
+I'm a technology enthusiast in heart and astronomer at night :telescope:
 
 An exceptional learner (self-taught myself pretty much everything)
 
