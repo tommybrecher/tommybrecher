@@ -31,10 +31,10 @@ I'm driven by passion & desire to make the world a better place.
 - Always have my team's back!
 - Let's help each other achieve our very best!
 - I love connecting the dots (seeing the full picture) and getting past impossible barriers.
-- Every day is a new opportunities for innovation and learning (I got this!)
+- Every day is a new opportunity for innovation and learning (I got this!)
 - I pay exceptional attention to the smallest of details (and always strive for the best)
 - I love collaborating and helping others achieve their very best
-- Teacher at heart (also former volunteered teacher)
+- Teacher at heart (also former volunteer teacher)
 
 :zap: If you can't explain it simply, you don't understand it well enough - Albert Einstein
 
